@@ -103,3 +103,6 @@ Ryan 认为，Nothing 的核心价值之一就是把科技的快乐带回产品�
 \> 下载少数派 [客户端](https://sspai.com/page/client)、关注 [少数派公众号](https://sspai.com/s/J71e)，了解更多的新玩意 🆒
 
 \> 特惠、好用的硬件产品，尽在 [少数派 sspai 官方店铺](https://shop549593764.taobao.com/?spm=a230r.7195193.1997079397.2.2ddc7e0bPqKQHc) 🛒
+
+你好,
+什么你好
