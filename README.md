@@ -21,3 +21,5 @@
 你好
 
    - DOMAIN,sspai.com/post
+
+    - DOMAIN,sspai.com
