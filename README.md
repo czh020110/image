@@ -1,4 +1,4 @@
-[![](//upload.wikimedia.org/wikipedia/commons/thumb/3/39/Bob_Odenkirk_Lavell_Crawford_Breaking_Bad.jpg/250px-Bob_Odenkirk_Lavell_Crawford_Breaking_Bad.jpg)](/wiki/File:Bob_Odenkirk_Lavell_Crawford_Breaking_Bad.jpg)
+[![](https//upload.wikimedia.org/wikipedia/commons/thumb/3/39/Bob_Odenkirk_Lavell_Crawford_Breaking_Bad.jpg/250px-Bob_Odenkirk_Lavell_Crawford_Breaking_Bad.jpg)](/wiki/File:Bob_Odenkirk_Lavell_Crawford_Breaking_Bad.jpg)
 
 [![](http://www.baidu.com/img/bdlogo.gif)](http://baidu.com)
 
