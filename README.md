@@ -1,5 +1,7 @@
 [![](//upload.wikimedia.org/wikipedia/commons/thumb/3/39/Bob_Odenkirk_Lavell_Crawford_Breaking_Bad.jpg/250px-Bob_Odenkirk_Lavell_Crawford_Breaking_Bad.jpg)](/wiki/File:Bob_Odenkirk_Lavell_Crawford_Breaking_Bad.jpg)
 
+[![](http://www.baidu.com/img/bdlogo.gif)](http://baidu.com)
+
 # [Saul Goodman - Wikipedia](https://en.wikipedia.org/wiki/Saul_Goodman)
 
 Fictional character in the Breaking Bad franchise
